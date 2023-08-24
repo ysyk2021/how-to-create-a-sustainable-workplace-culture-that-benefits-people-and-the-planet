@@ -1,5 +1,3 @@
-Importance of Building a Culture of Sustainability in the Workplace
-====================================================================================================================
 
 Building a culture of sustainability is essential for creating a sustainable workplace culture that benefits people and the planet. In this chapter, we will discuss the importance of building a culture of sustainability in the workplace.
 

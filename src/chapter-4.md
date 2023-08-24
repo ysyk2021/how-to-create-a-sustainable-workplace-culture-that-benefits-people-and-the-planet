@@ -1,5 +1,3 @@
-Chapter 4: Reducing Your Workplace's Environmental Footprint
-============================================================
 
 Reducing your workplace's environmental footprint is essential for creating a sustainable workplace culture that benefits people and the planet. In this chapter, we will discuss the importance of reducing your workplace's environmental footprint and techniques for improving energy efficiency, reducing waste, and conserving resources.
 

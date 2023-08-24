@@ -1,5 +1,3 @@
-Chapter 2: Understanding Sustainability in the Workplace
-========================================================
 
 Understanding sustainability in the workplace is essential for creating a sustainable workplace culture that benefits people and the planet. In this chapter, we will discuss the definition of sustainability in the workplace and the benefits of sustainable workplace practices for businesses, people, and the planet.
 

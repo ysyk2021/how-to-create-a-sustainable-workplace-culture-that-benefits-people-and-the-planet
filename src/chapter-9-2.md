@@ -1,5 +1,3 @@
-Strategies for Overcoming These Obstacles
-======================================================================================================================
 
 Creating a sustainable workplace culture is not always easy. There may be obstacles that prevent your organization from achieving its sustainability goals. In this chapter, we will discuss strategies for overcoming these obstacles.
 

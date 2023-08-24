@@ -1,5 +1,3 @@
-Benefits of Sustainable Workplace Practices for Businesses, People, and the Planet
-============================================================================================================================================
 
 Sustainability in the workplace refers to practices that promote environmental, social, and economic sustainability. In this chapter, we will discuss the benefits of sustainable workplace practices for businesses, people, and the planet.
 

@@ -1,5 +1,3 @@
-Chapter 9: Overcoming Obstacles to Creating a Sustainable Workplace Culture
-===========================================================================
 
 Creating a sustainable workplace culture can be challenging due to various obstacles that organizations may face. In this chapter, we will discuss common obstacles to creating a sustainable workplace culture and strategies for overcoming them.
 

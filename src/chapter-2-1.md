@@ -1,5 +1,3 @@
-Definition of Sustainability in the Workplace
-=======================================================================================================
 
 Sustainability in the workplace refers to practices and initiatives that promote environmental, social, and economic sustainability within an organization. It involves considering the impacts of business operations on people and the planet, as well as ensuring the long-term viability and success of the organization.
 

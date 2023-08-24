@@ -1,5 +1,3 @@
-Overview of Promoting Social Responsibility in the Workplace
-=========================================================================================================================
 
 Promoting social responsibility in the workplace is essential for creating a sustainable workplace culture that benefits people and the planet. In this chapter, we will discuss an overview of promoting social responsibility in the workplace.
 

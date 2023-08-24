@@ -1,5 +1,3 @@
-Chapter 3: Assessing Your Workplace's Environmental Impact
-==========================================================
 
 Assessing your workplace's environmental impact is essential for creating a sustainable workplace culture that benefits people and the planet. In this chapter, we will discuss an overview of assessing your workplace's environmental impact and strategies for measuring resource consumption and waste generation.
 

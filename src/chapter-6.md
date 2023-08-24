@@ -1,5 +1,3 @@
-Chapter 6: Building a Culture of Sustainability
-===============================================
 
 Building a culture of sustainability in the workplace is essential for creating lasting change and promoting a sustainable workplace culture that benefits people and the planet. In this chapter, we will discuss the importance of building a culture of sustainability in the workplace and techniques for fostering employee engagement, participation, and ownership in sustainability efforts.
 

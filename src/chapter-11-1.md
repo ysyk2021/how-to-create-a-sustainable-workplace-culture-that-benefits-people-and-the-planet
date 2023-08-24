@@ -1,5 +1,3 @@
-Creating a Roadmap for Creating a Sustainable Workplace Culture That Benefits People and the Planet
-=============================================================================================================================================================
 
 Creating a sustainable workplace culture that benefits people and the planet requires a roadmap for implementation, including clear goals, action plans, timelines, and performance metrics. In this chapter, we will discuss implementation strategies for lasting change.
 

@@ -1,5 +1,3 @@
-Chapter 8: Communicating Your Workplace's Sustainability Efforts
-================================================================
 
 Communicating your workplace's sustainability efforts is crucial for building support and engagement from stakeholders, including employees, customers, investors, and regulators. In this chapter, we will discuss an overview of communicating your workplace's sustainability efforts and strategies for effectively sharing information and engaging stakeholders.
 

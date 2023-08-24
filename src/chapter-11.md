@@ -1,5 +1,3 @@
-Chapter 11: Implementation Strategies for Lasting Change
-========================================================
 
 Implementing a sustainable workplace culture requires dedication, creativity, and persistence. In this chapter, we will discuss implementation strategies for creating lasting change.
 

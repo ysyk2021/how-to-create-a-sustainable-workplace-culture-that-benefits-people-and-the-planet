@@ -1,5 +1,3 @@
-Chapter 10: Measuring and Reporting on Your Workplace's Sustainability Progress
-===============================================================================
 
 Measuring and reporting on your workplace's sustainability progress is essential for tracking the effectiveness of sustainability initiatives and demonstrating a commitment to sustainability. In this chapter, we will discuss the importance of measuring and reporting on your workplace's sustainability progress and techniques for tracking performance, setting goals, and reporting on outcomes.
 

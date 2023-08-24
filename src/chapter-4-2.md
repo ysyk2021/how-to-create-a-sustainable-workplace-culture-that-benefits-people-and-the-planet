@@ -1,5 +1,3 @@
-Techniques for Improving Energy Efficiency, Reducing Waste, and Conserving Resources
-==================================================================================================================================================
 
 Reducing your workplace's environmental footprint is essential for creating a sustainable workplace culture that benefits people and the planet. In this chapter, we will discuss techniques for improving energy efficiency, reducing waste, and conserving resources.
 

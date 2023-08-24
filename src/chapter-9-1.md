@@ -1,5 +1,3 @@
-Common Obstacles to Creating a Sustainable Workplace Culture
-=========================================================================================================================================
 
 Creating a sustainable workplace culture is not always easy, and there may be obstacles that prevent your organization from achieving its sustainability goals. In this chapter, we will discuss common obstacles to creating a sustainable workplace culture.
 

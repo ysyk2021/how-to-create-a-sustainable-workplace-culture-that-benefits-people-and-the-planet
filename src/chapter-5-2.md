@@ -1,5 +1,3 @@
-Strategies for Engaging Employees, Supporting Local Communities, and Promoting Diversity and Inclusion
-===================================================================================================================================================================
 
 Promoting social responsibility in the workplace involves integrating ethical and socially responsible practices into business operations to support local communities and society as a whole. In this chapter, we will discuss strategies for engaging employees, supporting local communities, and promoting diversity and inclusion.
 

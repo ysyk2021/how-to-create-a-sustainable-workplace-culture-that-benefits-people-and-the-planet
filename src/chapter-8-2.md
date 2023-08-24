@@ -1,5 +1,3 @@
-Strategies for Effectively Sharing Information and Engaging Stakeholders
-==========================================================================================================================================
 
 Communicating your workplace's sustainability efforts is essential for promoting transparency, building trust with stakeholders, and inspiring others to take action. In this chapter, we will discuss strategies for effectively sharing information and engaging stakeholders.
 

@@ -1,5 +1,3 @@
-Overview of Assessing Your Workplace's Environmental Impact
-=======================================================================================================================
 
 Assessing your workplace's environmental impact is the first step in creating a sustainable workplace culture. By understanding how your organization's operations affect the environment, you can identify areas for improvement and develop strategies to reduce your environmental footprint.
 

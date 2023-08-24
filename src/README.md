@@ -1,4 +1,4 @@
-# Introduction
+
 
 Creating a sustainable workplace culture is essential for the long-term success of any organization. A sustainable workplace culture not only benefits the planet but also promotes employee well-being, engagement, and productivity. By adopting sustainable business practices and promoting environmental stewardship, organizations can make a positive impact on their communities and the world.
 

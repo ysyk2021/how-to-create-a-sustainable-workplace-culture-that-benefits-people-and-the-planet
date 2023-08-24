@@ -1,5 +1,3 @@
-Techniques for Tracking Performance, Setting Goals, and Reporting on Outcomes
-==============================================================================================================================================================
 
 Measuring and reporting on your workplace's sustainability progress is essential for tracking performance, setting goals, and demonstrating accountability to stakeholders. In this chapter, we will discuss techniques for tracking performance, setting goals, and reporting on outcomes.
 

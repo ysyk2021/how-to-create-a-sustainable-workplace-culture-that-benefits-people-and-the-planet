@@ -1,5 +1,3 @@
-The Importance of Creating a Sustainable Workplace Culture that Benefits People and the Planet
-=======================================================================================================================
 
 Creating a sustainable workplace culture is becoming increasingly important for organizations as they recognize the benefits of environmental, social, and economic sustainability. In this chapter, we will discuss the importance of creating a sustainable workplace culture that benefits people and the planet.
 

@@ -1,5 +1,3 @@
-Overview of Communicating Your Workplace's Sustainability Efforts
-===================================================================================================================================
 
 Communicating your workplace's sustainability efforts is essential for promoting transparency, building trust with stakeholders, and inspiring others to take action. In this chapter, we will discuss an overview of communicating your workplace's sustainability efforts.
 

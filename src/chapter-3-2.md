@@ -1,5 +1,3 @@
-Strategies for Measuring Resource Consumption and Waste Generation
-==============================================================================================================================
 
 Measuring resource consumption and waste generation is a crucial step in assessing your workplace's environmental impact. By tracking these metrics, you can identify areas of inefficiency and waste and develop strategies to reduce your organization's environmental footprint. In this chapter, we will discuss strategies for measuring resource consumption and waste generation.
 

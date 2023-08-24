@@ -1,5 +1,3 @@
-Importance of Measuring and Reporting on Your Workplace's Sustainability Progress
-==================================================================================================================================================================
 
 Measuring and reporting on your workplace's sustainability progress is essential for creating a sustainable workplace culture that benefits people and the planet. In this chapter, we will discuss the importance of measuring and reporting on your workplace's sustainability progress.
 

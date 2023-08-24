@@ -1,5 +1,3 @@
-Tracking Progress and Celebrating Successes
-=====================================================================================================
 
 Tracking progress and celebrating successes are important components of implementing a sustainable workplace culture that benefits people and the planet. In this chapter, we will discuss strategies for tracking progress and celebrating successes.
 

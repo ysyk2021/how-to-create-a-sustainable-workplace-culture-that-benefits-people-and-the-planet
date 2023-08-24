@@ -1,5 +1,3 @@
-Techniques for Fostering Employee Engagement, Participation, and Ownership in Sustainability Efforts
-=====================================================================================================================================================
 
 Building a culture of sustainability is essential for creating a sustainable workplace culture that benefits people and the planet. In this chapter, we will discuss techniques for fostering employee engagement, participation, and ownership in sustainability efforts.
 
