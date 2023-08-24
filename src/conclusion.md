@@ -1,5 +1,4 @@
 
-
 Creating a sustainable workplace culture is essential for organizations to contribute positively to the environment, society, and the economy. By prioritizing sustainability, organizations can reduce their environmental footprint, promote social responsibility, and ensure long-term economic viability and success.
 
 Recap of Key Takeaways
