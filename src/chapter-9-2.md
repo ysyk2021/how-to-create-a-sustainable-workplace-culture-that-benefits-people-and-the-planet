@@ -1,5 +1,4 @@
-Chapter 18: Strategies for Overcoming Obstacles to Creating a Sustainable Workplace Culture
-===========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for overcoming the obstacles that organizations commonly face when trying to create a sustainable workplace culture. These strategies can help address challenges related to awareness, resistance to change, leadership support, limited resources, organizational culture, and accountability. By implementing these strategies, organizations can foster a culture of sustainability that benefits both people and the planet. Let's delve into some of the most effective approaches.
 

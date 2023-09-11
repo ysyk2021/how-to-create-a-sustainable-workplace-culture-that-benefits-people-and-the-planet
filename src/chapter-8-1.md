@@ -1,5 +1,4 @@
-Chapter 22: Overview of Communicating Your Workplace's Sustainability Efforts
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of communicating your workplace's sustainability efforts. Effective communication is vital for creating a sustainable workplace culture that benefits both people and the planet. By effectively conveying your sustainability initiatives, you can raise awareness, inspire engagement, and build a positive reputation. Let's explore key aspects of communicating your workplace's sustainability efforts.
 

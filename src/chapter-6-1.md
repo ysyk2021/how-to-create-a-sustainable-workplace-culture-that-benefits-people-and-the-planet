@@ -1,5 +1,4 @@
-Chapter 10: Importance of Building a Culture of Sustainability in the Workplace
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss the importance of building a culture of sustainability in the workplace. A culture of sustainability is when sustainable practices are deeply embedded in an organization's values, vision, and day-to-day operations. We will explore the benefits of creating such a culture and how organizations can foster one.
 

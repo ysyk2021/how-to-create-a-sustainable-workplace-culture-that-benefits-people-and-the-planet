@@ -1,5 +1,4 @@
-Chapter 16: Overview of Assessing Your Workplace's Environmental Impact
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of assessing your workplace's environmental impact as a crucial step in creating a sustainable workplace culture that benefits both people and the planet. Understanding your organization's environmental impact allows you to identify areas for improvement, implement targeted strategies, and track progress towards sustainability goals. Let's explore the key aspects of assessing your workplace's environmental impact.
 

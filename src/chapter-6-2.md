@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Fostering Employee Engagement, Participation, and Ownership in Sustainability Efforts
-===============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques and strategies to foster employee engagement, participation, and ownership in sustainability efforts within the workplace. Building a sustainable workplace culture requires active involvement and commitment from employees at all levels. We will discuss effective methods to promote employee engagement and empower individuals to contribute to sustainability initiatives.
 

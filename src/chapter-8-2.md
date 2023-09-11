@@ -1,5 +1,4 @@
-Chapter 21: Strategies for Effectively Sharing Information and Engaging Stakeholders
-====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for effectively sharing information and engaging stakeholders in creating a sustainable workplace culture that benefits people and the planet. Communication and engagement are vital components of sustainability initiatives, as they help build awareness, gain support, and foster collaboration. Let's delve into key strategies for sharing information and engaging stakeholders.
 

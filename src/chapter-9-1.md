@@ -1,5 +1,4 @@
-Chapter 17: Common Obstacles to Creating a Sustainable Workplace Culture
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the common obstacles that organizations face when trying to create a sustainable workplace culture that benefits both people and the planet. These obstacles can hinder progress towards sustainability goals and require careful consideration and proactive strategies to overcome. Let's delve into some of the most prevalent challenges in building a sustainable workplace culture.
 

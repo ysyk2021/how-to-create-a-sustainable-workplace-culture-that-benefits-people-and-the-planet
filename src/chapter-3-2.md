@@ -1,5 +1,4 @@
-Chapter 15: Strategies for Measuring Resource Consumption and Waste Generation
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for measuring resource consumption and waste generation in order to create a sustainable workplace culture that benefits people and the planet. By effectively measuring and monitoring these aspects, organizations can identify areas for improvement, implement targeted strategies, and track progress towards sustainability goals. Let's delve into the key strategies for measuring resource consumption and waste generation.
 

@@ -1,5 +1,4 @@
-Chapter 13: Strategies for Engaging Employees, Supporting Local Communities, and Promoting Diversity and Inclusion
-==================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for engaging employees, supporting local communities, and promoting diversity and inclusion in order to create a sustainable workplace culture that benefits people and the planet. These strategies foster employee involvement, strengthen community relationships, and ensure a diverse and inclusive work environment. Let's delve into the key strategies for each aspect.
 

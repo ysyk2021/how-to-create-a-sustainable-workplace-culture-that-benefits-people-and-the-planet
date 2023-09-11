@@ -1,5 +1,4 @@
-Chapter 14: Overview of Promoting Social Responsibility in the Workplace
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of promoting social responsibility in the workplace as a key component of creating a sustainable workplace culture that benefits people and the planet. Social responsibility encompasses actions and initiatives aimed at positively impacting society, including employees, communities, and stakeholders. Let's explore the key aspects of promoting social responsibility in the workplace.
 

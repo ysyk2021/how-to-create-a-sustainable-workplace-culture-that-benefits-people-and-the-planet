@@ -1,5 +1,4 @@
-Chapter 19: Creating a Roadmap for Building a Sustainable Workplace Culture
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss the importance of creating a roadmap for building a sustainable workplace culture that benefits both people and the planet. A roadmap provides a clear and structured plan to guide organizations through the process of transforming their culture towards sustainability. It helps define objectives, set priorities, allocate resources, and track progress. Let's explore the key steps involved in creating an effective roadmap.
 

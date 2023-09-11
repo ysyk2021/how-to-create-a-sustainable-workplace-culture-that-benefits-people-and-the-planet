@@ -1,5 +1,4 @@
-Chapter 9: Importance of Reducing Your Workplace's Environmental Footprint
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of reducing your workplace's environmental footprint. Creating a sustainable workplace culture goes beyond individual actions---it requires collective efforts from organizations to minimize their environmental impact. We will explore why reducing your workplace's environmental footprint is essential for the well-being of both people and the planet.
 

@@ -1,5 +1,4 @@
-Chapter 12: Benefits of Sustainable Workplace Practices for Businesses, People, and the Planet
-==============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the benefits of sustainable workplace practices for businesses, people, and the planet. Adopting sustainable practices in the workplace can improve the organization's performance, enhance employee well-being, and reduce environmental impact. We will delve into the various benefits of sustainability in the workplace.
 
